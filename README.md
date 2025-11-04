@@ -1,1 +1,1 @@
-# Computer-store-Training
+# Computer store Training
